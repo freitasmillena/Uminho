@@ -1,1 +1,1 @@
-# Uminho
+# UMinho
